@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="![image](https://github.com/rolex-filter-bot/Rolex_Filter_Bot/assets/166829997/42516ad9-67b1-41c6-9c32-976477307280)">
+  <img src="https://wallpaperaccess.com/download/rolex-surya-8406357">
 </p>
 <h1 align="center">
   <b>Rolex Filter Bot</b>
